@@ -15,9 +15,10 @@
 2. take off ur pants and click this
 
     this is my code block  
-    this is ur dick  
+  ~~this is ur dick~~  
     and this is mr.bean's toybear
-3. jerk it off, man.
+   
+~~3. jerk it off, man.~~
 
 this is my Bilibili account [`国服第一电竞卡车王`](https://space.bilibili.com/321958522?spm_id_from=333.1007.0.0 "dont click it it s got virus implanted in this link")
 
